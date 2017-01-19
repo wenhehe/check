@@ -1,2 +1,0 @@
-ok
-me stupid boss.
